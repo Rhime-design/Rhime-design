@@ -18,9 +18,9 @@ Favorite things. Children's literature, pure literature, philosophy📖, sociolo
 - Blog｜[http://rhizomebrain.net](http://rhizomebrain.net/) 
 - Twitter｜https://twitter.com/Rhime_design
 
-　 　 ∧,,∧
-     ( = ･ω〃 )
- ～(_ ｕ ｕ ﾉ
+　 　 ∧,,∧  
+　　( = ･ω〃 )  
+ ～(_ ｕ ｕ ﾉ  
 
 ---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/
 
