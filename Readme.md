@@ -1,6 +1,6 @@
 ## Hi, I'm Izumi ”Rhime” Miyasaka🦝
 
-![IzumiMiyasaka_BrandAssets_002_1280](E:\Document\Design\MyDesign\IZUMI_Miyasaka\Design\IzumiMiyasaka_BrandAssets_002_1280.png)
+![IzumiMiyasaka_Rhime](https://raw.githubusercontent.com/Rhime-design/Rhime-design/master/Images/IzumiMiyasaka_BrandAssets_002_1280.png)
 
 ---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/
 
