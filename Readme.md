@@ -1,6 +1,6 @@
 ## Hi, I'm Izumi ”Rhime” Miyasaka🦝
 
-![IzumiMiyasaka_BrandAssets_002_1280](E:\Document\Design\MyDesign\IZUMI_Miyasaka\Design\IzumiMiyasaka_BrandAssets_002_1280.png)
+![IzumiMiyasaka_Rhime](https://raw.githubusercontent.com/Rhime-design/Rhime-design/master/Images/IzumiMiyasaka_BrandAssets_002_1280.png)
 
 ---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/
 
@@ -18,9 +18,8 @@ Favorite things. Children's literature, pure literature, philosophy📖, sociolo
 - Blog｜[http://rhizomebrain.net](http://rhizomebrain.net/) 
 - Twitter｜https://twitter.com/Rhime_design
 
-　 　 ∧,,∧
-     ( = ･ω〃 )
- ～(_ ｕ ｕ ﾉ
+　 　 ∧,,∧  
+　　( = ･ω〃 )  
+ ～(_ ｕ ｕ ﾉ  
 
 ---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/
-
