@@ -37,10 +37,15 @@ Children's literature, pure literature, philosophy📖, modern thought, sociolog
 I'm particularly influenced by French contemporary thought and the German children's author Michael Ende. In other words, like you, I don't like capitalism very much.💸😂  
 That's why I'm interested in pioneering post-capitalism with blockchain, Dweb technology, etc.  
 
-## Find me
+## How to contact me on the web?
 
 - Blog｜[http://rhizomebrain.net](http://rhizomebrain.net/) 
 - Twitter｜https://twitter.com/Rhime_design
+- Mail   ｜izumi.rhime@disroot.org
+- XMPP ｜izumi.rhime@disroot.org 💌
+- Matrix ｜@izumi.rhime:matrix.org 💌
+
+💌<- Cool
 
 　 　 ∧,,∧  
 　　( = ･ω〃 )  
