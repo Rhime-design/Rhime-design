@@ -25,8 +25,8 @@ VR, GameEngine(Unity, UE4), 3DCG(Blender)
 
 UI/UX design, branding, marketing, copywriting, etc.   
 Illustrator, Photoshop, Adobe XD.  
-Unity🔰, UnrealEngine4🔰   
 Blender.   
+Unity🔰, UnrealEngine4🔰   
 Github, WordPress, E-commerce👜  
 
 Important: I have no programming skills😹  
