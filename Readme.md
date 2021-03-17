@@ -13,7 +13,7 @@ Born and raised in Japan.🎌🗾
 Last name : MIYASAKA  
 First Name : Izumi  
 JPN : 宮坂 伊澄  
-Like a nickname for me on the web : Rhime  
+Nickname : Rhime  
 *None of these are real names😎  
 
 ### Interests🕶
