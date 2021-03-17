@@ -14,7 +14,7 @@ Last name : MIYASAKA
 First Name : Izumi  
 JPN : 宮坂 伊澄  
 Like a nickname for me on the web : Rhime  
-*None of these are real names.😎  
+*None of these are real names😎  
 
 ### Interests🕶
 
@@ -29,7 +29,7 @@ Unity, UnrealEngine4.
 Blender.   
 Github, WordPress, E-commerce👜  
 
-Important: I can't program.😹  
+Important: I have no programming skills😹  
 
 ### Favorite things❤
 
