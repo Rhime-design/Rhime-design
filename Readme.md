@@ -19,7 +19,7 @@ Like a nickname for me on the web : Rhime
 ### Interests🕶
 
 Blockchain, cryptocurrency, open source culture, NEM(SYMBOL).  
-VR, GameEngine(Unity, UE4), 3DCG  
+VR, GameEngine(Unity, UE4), 3DCG(Blender)
 
 ### Skills🎨
 
