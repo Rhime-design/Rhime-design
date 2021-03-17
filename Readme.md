@@ -35,7 +35,7 @@ Important: I have no programming skills😹
 
 Children's literature, pure literature, philosophy📖, modern thought, sociology, religious studies (Buddhism, Islam), economics, psychology, ethics, cats, black clothes, corners, edges, and shade🌚. 
 
-I'm particularly influenced by French contemporary thought and the German children's author Michael Ende. In other words, like you, I don't like capitalism very much.💸😂  
+I'm particularly influenced by French contemporary thought and the German children's author Michael Ende. In other words, like you, I don't like capitalism very much💸😂  
 That's why I'm interested in pioneering post-capitalism with blockchain, Dweb technology, etc.  
 
 ## How to contact me on the web?
