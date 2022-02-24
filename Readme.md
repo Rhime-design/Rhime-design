@@ -1,7 +1,5 @@
 ## Hi, I'm Izumi ”Rhime” Miyasaka🦝
 
-![IzumiMiyasaka_Rhime](https://raw.githubusercontent.com/Rhime-design/Rhime-design/master/Images/IzumiMiyasaka_BrandAssets_002_1280.png)
-
 ---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/---/
 
 Born and raised in Japan.🎌🗾
